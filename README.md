@@ -1,2 +1,2 @@
-# HWIDplatform
-return }
+1X2C-3JF9-3P2X-1WQP
+2P9Q-3PLR-8GJC-3MS4
