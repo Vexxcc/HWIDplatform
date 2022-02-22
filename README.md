@@ -1,6 +1,14 @@
---whitelisted alt control paid ids cracked
+--whitelisted alt control.
+-- whitelist bot
 3240599627
 2944928209
 2013962323
 898571697
 3242918240
+1293291480
+2140814209
+3087532708
+premium users --
+
+2048301849 - ray
+2944928209 - vXn
